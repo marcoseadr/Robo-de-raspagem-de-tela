@@ -1,0 +1,1 @@
+# Rob-de-raspagem-de-tela
